@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @LuanaNSantos
 - 👀 I’m beggining to exploring the programation's world 
 - 🌱 Good Luck for me!
-- 💞️ Brazilian girl
+- 💞️ Brazilian
 - 📫 How to reach me luahh.997@gmail.com
 
 <!---
